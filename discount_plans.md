@@ -1,1 +1,3 @@
-loyal
+- FLAT Rs. 150 OFF on Ordering Worth Rs. 499
+- FLAT 50% OFF on Food & Drink Purchases
+- Get a Coffe latte Free On Bill Of Rs 250
