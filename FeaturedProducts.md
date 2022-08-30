@@ -10,3 +10,4 @@
 - Flat White
 - Mocha Latte
 - Iced Coffee
+- Iced Latte
